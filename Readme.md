@@ -111,7 +111,7 @@ Total Profit: ₹129.76
 ## 📬 Connect
 
 📧 Email: eegasai@gmail.com  
-🔗 LinkedIn: [SaikumarIn](www.linkedin.com/in/saikumar-eega) 
+🔗 LinkedIn: [Saikumar.In](www.linkedin.com/in/saikumar-eega) 
 
 ---
 
